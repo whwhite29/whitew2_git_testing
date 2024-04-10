@@ -1,2 +1,2 @@
-# Will White, Isabelle Smith
+# Will White, Isabelle Smith, Amy Longtin
 
